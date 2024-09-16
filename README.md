@@ -1,2 +1,2 @@
 # IndividialProjects
- Projects that I have been working on
+ Year 2022 - Projects that I worked on
